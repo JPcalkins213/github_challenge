@@ -1,1 +1,1 @@
-i dont really know what to write here honestly git is pretty cool super convenient. much hub very git
+i dont really know what to write here honestly git is pretty cool super the weather outside is cold and wet and cloudy i dont think ill be taking belle to the dog park today
